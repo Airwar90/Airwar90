@@ -1,4 +1,8 @@
-### Hi there 👋
+### Ciao! 🍕<br>
+I'm currently learning how to use Github <br>
+will update my profile in the next days 🚧 <br>
+My pronouns are They/Them
+
 
 <!--
 **Airwar90/Airwar90** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
