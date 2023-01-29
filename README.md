@@ -1,6 +1,5 @@
 ### Ciao! 🍕<br>
-I'm currently still learning how to use Github at its fullest<br>
-will update my profile in the next days 🚧 <br>
+
 My pronouns are They/Them
 
 
